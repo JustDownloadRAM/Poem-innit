@@ -1,7 +1,11 @@
 # Poem-innit
 Lerming
-There once was a ship that put to sea
-and the name of the ship was the Billy of Tea.
+Mash potatoes,
+Hash brown Kratos.
+Where in the world is BOY!?
+That father asketh,
+all our of breath,
+from climbing mount Leroy.
 
-The winds blew up, her bow dipped down.
-Blow my billy boys blow! HUH.
+Since dawn till dusk his search not yielding
+results all
